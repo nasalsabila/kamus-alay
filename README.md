@@ -19,4 +19,4 @@ Send me an email to nikmatunaliyahsalsabila@mail.com if there's any feedback or 
 
 Regards,
 
-Salsabila, Ali, Yosef, and Adi
+Salsabila, Ali, Yosef, and Ade
