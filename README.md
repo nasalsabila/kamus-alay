@@ -6,6 +6,8 @@ Halo. Apabila ingin 'bermain-main' atau ingin diskusi mengenai dataset kamus-ala
 Semoga bisa bermanfaat dan menghasilkan karya keren nantinya!
 
 --
+
+
 Assalamu'alaikum. Hello! Hi! 
 Hopefully, this lexicon is useful for your great work!
 
